@@ -1,0 +1,1 @@
+Batman, el Caballero Oscuro de Gotham, es mucho más que un superhéroe: es un símbolo de resiliencia, justicia y oscuridad redentora. Su historia ha evolucionado durante más de ocho décadas, desde su primera aparición en Detective Comics #27 en 1939, hasta convertirse en un ícono cultural global.
