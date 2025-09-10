@@ -1,0 +1,4 @@
+# Historia de Flash
+
+
+Flash es un superhéroe del universo DC conocido por su increíble velocidad. El personaje ha sido interpretado por varios héroes a lo largo del tiempo, comenzando con Jay Garrick en 1940, quien obtuvo sus poderes tras inhalar vapores químicos. Sin embargo, el Flash más icónico es Barry Allen, un científico forense que adquirió supervelocidad luego de ser alcanzado por un rayo y expuesto a productos químicos. Barry se convirtió en un miembro fundamental de la Liga de la Justicia y protagonizó eventos clave como Crisis en Tierras Infinitas y Flashpoint, donde alteró la línea temporal al intentar salvar a su madre. Tras su desaparición, su sobrino político Wally West asumió el manto de Flash, continuando el legado. A lo largo de los años, Flash ha sido símbolo de esperanza, sacrificio y conexión con el multiverso, enfrentando enemigos como Reverse Flash y Zoom, y explorando los límites del tiempo y la realidad.
